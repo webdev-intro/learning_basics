@@ -4,4 +4,4 @@
 
 29.08.2022 Fran: Hello!
 
-0.8.2022.-Filip-Kaxmo-kaj-ekipa
+30.8.2022.-Filip-Kaxmo-kaj-ekipa
